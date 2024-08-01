@@ -1,1 +1,0 @@
-# concetto-24-android
